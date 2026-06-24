@@ -1,0 +1,2 @@
+# FUJI-HAKUBA-TOKYO
+Japan trip 2027
